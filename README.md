@@ -12,6 +12,10 @@ For any student at John Fraser SS interested in competing in the University of W
 #### Cost
 - $8.25 (includes all processing fees)
 
+#### Where?
+- In-person (most probably library), or
+- Online (will need a working computer and webcam for supervision/proctoring purposes)
+
 #### Actions
 - Complete [this](https://forms.gle/uzpsy9yV6Z19oXcr5) survey to show your interest. This survey will close on January 28th at 8:30AM.
 - Pay for your entry on SchoolCashOnline (available approximately January 31 - February 3)
