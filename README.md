@@ -10,7 +10,7 @@ For any student at John Fraser SS interested in competing in the University of W
 - We will be running the contest from 08:30 - 11:30 (goes into lunch).
 
 #### Cost
-- $8.25 (includes all processing fees)
+- ~$8.25 (includes all processing fees)
 
 #### Where?
 - In-person (most probably library), or
