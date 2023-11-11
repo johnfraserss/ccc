@@ -19,4 +19,4 @@ For any student at John Fraser SS interested in competing in the University of W
 #### Actions:
 - Complete [~~this~~](#) survey to show your interest. This survey will close on January 28th at 8:30AM. **Sign-up time has passed. Thank you to all of those that have shown their interest.**
 - Pay for your entry on SchoolCashOnline (available approximately January 31 - February 3)
-- If you have not done so already, sign up for the [CCC Grader](https://cccgrader.com/) (this is where the contest will occur and it has practice questions). You might need a particular number for this (057307222).
+- If you have not done so already, sign up for the [CCC Grader](https://cccgrader.com/) (this is where the contest will occur and it has practice questions).
